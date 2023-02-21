@@ -1,0 +1,1 @@
+There was a dog who had three legs. It was difficult for the dog to walk. However, eventually they learned to walk and were happy.
